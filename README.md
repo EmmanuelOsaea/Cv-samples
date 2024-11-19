@@ -1,15 +1,15 @@
 
 
-Resume Sample 1: Corporate Banking
+**Resume Sample 1: Corporate Banking**
 
 Samson Sylvanus
 Contact Information
 
 Professional Summary
 
-Strategic and results-driven finance professional with 5years of experience in corporate banking. Skilled in loan structuring, portfolio management, and client relationship development. Proven ability to drive revenue growth and deliver tailored financial solutions for corporate clients. Adept at risk analysis, credit assessment, and cross-functional collaboration to meet business objectives.
+Strategic and aim-oriented finance professional with 5years of experience in corporate banking. Proficient in loan structuring, portfolio management, and client relationship development. Proven ability to drive revenue growth and deliver tailored financial solutions for corporate clients. Adept at risk analysis, credit assessment, and cross-functional collaboration to meet business objectives.
 
-Key Skills
+**Key Skills**
 
 Corporate Finance & Loan Structuring
 
@@ -22,7 +22,7 @@ Credit Assessment & Analysis
 Regulatory Compliance
 
 
-Professional Experience
+**Professional Experience**
 
 Corporate Banking Specialist
 [Company Name], [Location] | [MM/YYYY – Present]
@@ -45,7 +45,7 @@ Developed and presented financial models that enhanced decision-making in loan a
 
 ---
 
-Resume Sample 2: Private Wealth Investments
+**Resume Sample 2: Private Wealth Investments**
 
 [Your Name]
 Contact Information
@@ -90,7 +90,7 @@ Built relationships with high-net-worth clients to understand their goals and al
 
 ---
 
-Resume Sample 3: Capital Markets and Equity Research
+**Resume Sample 3: Capital Markets and Equity Research**
 
 [Your Name]
 Contact Information
