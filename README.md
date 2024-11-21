@@ -7,7 +7,7 @@
 
 **Professional Summary**
 
-Strategic and aim-oriented finance professional with 5years of experience in corporate banking. Proficient in loan structuring, portfolio management, and client relationship development. Demonstrated capacity to drive revenue growth and deliver customized financial solutions for corporate clients. Adroit at risk analysis, credit assessment, and multi-functional collaboration to meet company's objectives.
+Strategic and aim-oriented finance professional with 5 years of experience in corporate banking. Proficient in loan structuring, portfolio management, and client relationship development. Demonstrated capacity to drive revenue growth and deliver customized financial solutions for corporate clients. Adroit at risk analysis, credit assessment, and multi-functional collaboration to meet company's objectives.
 
 ## Key Skills
 
@@ -27,7 +27,7 @@ Strategic and aim-oriented finance professional with 5years of experience in cor
 **Corporate Banking Specialist**
 Citi, Ireland | August/2020 – Present
 
-- Structured and negotiated loans ranging from $1M–$70M for corporate clients, achieving 6,900% increase in portfolio revenue.
+- Structured and negotiated loans ranging from $1M to $70M for corporate clients, achieving 6,900% increase in portfolio revenue.
 
 - Exercised detailed financial analyses to assess clients' credit status, ensuring alignment with risk management policies.
 
@@ -51,7 +51,7 @@ Santander, Spain | July/2017 – Sept/2019
 
 **Professional Summary**
 
-Highly competent wealth management professional with 5years of experience advising multi-billionaires individuals. 
+Highly competent wealth management professional with 5 years of experience advising multi-billionaires individuals. 
 Mastery in financial planning, investment strategy development, and portfolio management. Demonstrated capacity to drive client satisfaction and long-term growth through high-touch consultancy services.
 
 ## Key Skills
@@ -97,7 +97,7 @@ Deutsche Bank, Germany | February/2019 – December/2021
 
 ## Professional Summary
 
-Dynamic finance professional with 10years of experience in capital markets and equity research. Highly-skilled in market trend analysis, valuation modeling, and delivering data-driven investment recommendations. Demonstrates strong logical and numerical  skills, contributing to informed investment strategies.
+Dynamic finance professional with 10 years of experience in capital markets and equity research. Highly-skilled in market trend analysis, valuation modeling, and delivering data-driven investment recommendations. Demonstrates strong logical and numerical  skills, contributing to informed investment strategies.
 
 ## Key Skills
 
