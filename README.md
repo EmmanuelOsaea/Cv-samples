@@ -7,7 +7,7 @@
 
 **Professional Summary**
 
-Strategic and aim-oriented finance professional with 5 years of experience in corporate banking. Proficient in loan structuring, portfolio management, and client relationship development. Demonstrated capacity to drive revenue growth and deliver customized financial solutions for corporate clients. Adroit at risk analysis, credit assessment, and multi-functional collaboration to meet company's objectives.
+Strategic and aim-oriented finance professional with 5 years of experience in corporate banking. Proficient in loan structuring, portfolio management, and client relationship development. Demonstrated capacity to drive revenue growth and deliver customized financial solutions for corporate clients. Adroit at risk analysis, credit assessment, and multi-functional collaboration to meet the company's objectives.
 
 ## Key Skills
 
@@ -27,7 +27,7 @@ Strategic and aim-oriented finance professional with 5 years of experience in co
 **Corporate Banking Specialist**
 Citi, Ireland | August/2020 – Present
 
-- Structured and negotiated loans ranging from $1M to $70M for corporate clients, achieving 6,900% increase in portfolio revenue.
+- Structured and negotiated loans ranging from $1M to $70M for corporate clients, achieving a 6,900% increase in portfolio revenue.
 
 - Exercised detailed financial analyses to assess clients' credit status, ensuring alignment with risk management policies.
 
@@ -36,7 +36,7 @@ Citi, Ireland | August/2020 – Present
 **Financial Analyst**
 Santander, Spain | July/2017 – Sept/2019
 
-- Analyzed corporate financial assessments to provide appliable knowledge for credit and investment decisions.
+- Analyzed corporate financial assessments to provide applicable knowledge for credit and investment decisions.
 
 - Refined and provided financial models that boosted decision-making in loan approvals and portfolio distribution.
 
@@ -82,9 +82,9 @@ BNP Paribas Wealth Management, France | February/2020 – Present
 ## Investment Analyst
 Deutsche Bank, Germany | February/2019 – December/2021
 
-- Operated risk and performance analysis on a wide spectrum of investment products, supporting the financial institutions team in achieving 60% growth.
+- Operated risk and performance analysis on a wide spectrum of investment products, supporting the financial institution's team in achieving 60% growth.
 
-- Established partnerships with high-net-worth clients to understand their goals and align risk managements accordingly.
+- Established partnerships with high-net-worth clients to understand their goals and align risk management accordingly.
 
 
 
@@ -97,7 +97,7 @@ Deutsche Bank, Germany | February/2019 – December/2021
 
 ## Professional Summary
 
-Dynamic finance professional with 10 years of experience in capital markets and equity research. Highly-skilled in market trend analysis, valuation modeling, and delivering data-driven investment recommendations. Demonstrates strong logical and numerical  skills, contributing to informed investment strategies.
+Dynamic finance professional with 10 years of experience in capital markets and equity research. Proficient in market trend analysis, valuation modeling, and delivering data-driven investment recommendations. Demonstrates strong logical and numerical  skills, contributing to informed investment strategies.
 
 ## Key Skills
 
