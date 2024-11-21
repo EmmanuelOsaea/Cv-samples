@@ -92,8 +92,8 @@ Deutsche Bank, Germany | February/2019 – December/2021
 
 **Resume Sample 3: Capital Markets and Equity Research**
 
-Juliet Simpson
-juliesimpsontheanalyst@gmail.com
+## Juliet Simpson
+## juliesimpsontheanalyst@gmail.com
 
 ## Professional Summary
 
