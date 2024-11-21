@@ -58,7 +58,7 @@ Mastery in financial planning, investment strategy development, and portfolio ma
 
 - Wealth Management & Financial Planning
 
-_ High-Net-Worth Client Advisory
+- High-Net-Worth Client Advisory
 
 - Investment Strategy Development
 
@@ -125,7 +125,7 @@ SEB (Skandinaviska Enskilda Banken), Sweden | January/2020 – Present
 
 
 **Capital Markets Associate**
-Landsbankinn, Iceland | January/2016 – December/2020]
+Landsbankinn, Iceland | January/2016 – December/2020
 
 - Tracked and analyzed financial market trends to identify risks and opportunities, resulting in a 500% improvement in portfolio performance.
 
